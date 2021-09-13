@@ -6,4 +6,3 @@
 
 ## Contact info:
     - Email: dvaldespino94@gmail.com or dvaldespino94@nauta.cu
-    - Telegram: 
